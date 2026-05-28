@@ -1,1 +1,2 @@
-# B-i-cu-i-k-nh-ng
+# Vu Ngoc Son_23020764
+# Nguyen Hoang Thien_23020774
